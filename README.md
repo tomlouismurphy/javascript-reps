@@ -1,4 +1,3 @@
-# Monday Homework
 
 ## Round 1
 
